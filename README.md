@@ -6,7 +6,7 @@
 
 <details>
  <summary>General Info</summary>
-  I am a trans, demiromantic minor. That being said, I am also not exactly stable. Somedays I am hyper sensitive, the others I pull a 180. Yes, I am Ill, but I'm getting help. Once I'm attached to someone, i don't usually let go. Even so, I may be pretty detatched for awhile. Imagine it as testing the waters. Also; I'll use the bare minimum of tonetags, mostly for jokes though.
+  I am a trans, demiromantic teenager. That being said, I am also not exactly stable. Somedays I am hyper sensitive, the others I pull a 180. Yes, I am Ill, but I'm getting help. Once I'm attached to someone, i don't usually let go. Even so, I may be pretty detatched for awhile. Imagine it as testing the waters. Also; I'll use the bare minimum of tonetags, mostly for jokes though.
 
 ~
 <details>
