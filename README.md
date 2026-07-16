@@ -12,14 +12,14 @@
 <details>
  <summary>KINS</summary>
 
- [++] Sancho/Don Quixote
+ [+++] Sancho/Don Quixote
   
  [+++] 1x1x1x1
  
- [+] Hod
+ [?] Hod
  
  [+] Nightmare Sans (both "passive" and "corrupt")
 
- [+] Timekeeper Cookie
+ [+] Pain de Champagne Cookie
 
  [+] Derek/Der3lord3
