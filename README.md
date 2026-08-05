@@ -4,4 +4,6 @@
 
 *Go!! My silly alt account!!*
 
+![](https://komarev.com/ghpvc/?username=THE-DREAMENDING&label=GALLOP+WITH+ME!&color=FFBD4D)
+
 <img width="498" height="150" alt="sancho-don-quixote-limbus-company-canto-7-mili-hero" src="https://github.com/user-attachments/assets/a798b659-ee0c-4bcd-b9f3-f78dbcdaa0ae" />
