@@ -4,6 +4,9 @@
 
 *Go!! My silly alt account!!*
 
+*Highkey afraid of spam followers.. BUT IPROMISE IM NOT ONE OF THEM!! I just like following cool looking people or people that might be cool to maybe interact with/interact with again... ok..? thank you :D!!*
+> Pls let me ramble about fixers plsplspls
+
 ![](https://komarev.com/ghpvc/?username=THE-DREAMENDING&label=GALLOP+WITH+ME!&color=FFBD4D)
 
 <img width="498" height="150" alt="sancho-don-quixote-limbus-company-canto-7-mili-hero" src="https://github.com/user-attachments/assets/a798b659-ee0c-4bcd-b9f3-f78dbcdaa0ae" />
