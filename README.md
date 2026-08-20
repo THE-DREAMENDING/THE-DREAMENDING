@@ -9,6 +9,7 @@
 *Highkey afraid of spam followers.. BUT IPROMISE IM NOT ONE OF THEM!! I just like following cool looking people or people that might be cool to maybe interact with/interact with again... ok..? thank you :D!!*
 
 *sorry if I come off too clingy :(*
+
 </details>
 
 *Pls let me ramble about fixers plsplspls*
